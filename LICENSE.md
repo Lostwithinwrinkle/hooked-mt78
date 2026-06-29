@@ -1,4 +1,4 @@
-
+no-ban Script for hooked offers the most advanced hooked Script, with undetectable and no clip. Perfect for dominating any match.
 
 
 
